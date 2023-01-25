@@ -1,7 +1,8 @@
 ### Hi there 👋
 
-
-About Me :sun_with_face:
+##I'm Liv Vitale
+________________
+:sun_with_face: About Me :sun_with_face:
 
 - :mortar_board: Graphic and Interactive Design Student - Raritan Valley Community College (she/her)
 - :guitar: I love to play guitar and listen to music
