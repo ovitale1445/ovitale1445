@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-##I'm Liv Vitale
+I'm Liv Vitale
 ________________
 :sun_with_face: About Me :sun_with_face:
 
